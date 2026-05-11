@@ -1,4 +1,4 @@
-# 
+# professional NFT Mint Bot for nft sniper bot | NFT-sniping & take-profit is the best nft sniper bot, featuring NFT-sniping and take-profit. Fast, smart, and optimized for NFT
 
 
 
